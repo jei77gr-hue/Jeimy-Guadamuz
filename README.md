@@ -1,2 +1,2 @@
 # Jeimy-Guadamuz
-aprendizaje continuo lleva a la excelencia 
+Aprendizaje continuo lleva a la excelencia 
